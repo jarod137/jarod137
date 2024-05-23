@@ -8,5 +8,5 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: email - jarod137@nmsu.edu
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love to play TCGs such as Pokemon, Magic, Yu-Gi-Oh, and Weiss Schwarz
+- ⚡ Fun fact: I love to play TCGs such as Pokemon, Magic, One Piece, and Weiss Schwarz
 
